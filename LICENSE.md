@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for plants vs brainrots offers the most advanced plants vs brainrots Script, with private server access and undetectable. Perfect for
 
 
 
